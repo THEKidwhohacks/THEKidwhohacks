@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @THEKidwhohacks
+- 👀 I’m interested in hacks
+- 🌱 I’m currently learning hacks
+- 💞️ I’m looking to collaborate on hacks
+- 📫 How to reach me DISCORD Sinful#1736 NOT SURE WHY YOU WOULD DM ME ON DISCORD BUT OK
